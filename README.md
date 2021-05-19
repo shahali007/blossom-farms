@@ -1,3 +1,3 @@
-# blossom-ventures
+# blossom-farms
 
-https://shahali007.github.io/blossom-ventures/
+https://shahali007.github.io/blossom-farms/
